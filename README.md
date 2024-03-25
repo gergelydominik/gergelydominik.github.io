@@ -1,1 +1,0 @@
-# gergelydominik.github.io
